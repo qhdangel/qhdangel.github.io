@@ -1,2 +1,2 @@
 # qhdangel.github.io
-One-on-one spoken Chinese practice, daily conversation, voice/video lessons on WeChat, 50 RMB/hour.
+One-on-one spoken Chinese practice, daily conversation, voice/video lessons on WeChat, 8 USD/hour.
